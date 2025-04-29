@@ -1,1 +1,1 @@
-Focus the goal..
+Focus on  goal..
